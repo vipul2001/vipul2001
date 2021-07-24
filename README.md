@@ -5,7 +5,7 @@ I'm currently studing at IIT Roorkee😃
 Feel Free to ping me at: vbansal@me.iitr.ac.in
 
 ### Publications: 4
-### Citations : 53 (Last Updated 11th July, 2021)
+### Citations : 54 (Last Updated 24th July, 2021)
 ### Google Scholar: https://scholar.google.com/citations?user=dQlqrEYAAAAJ&hl=en
 
 
