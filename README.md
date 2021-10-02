@@ -6,7 +6,7 @@ Feel Free to ping me at: vbansal@me.iitr.ac.in
 
 ### Publications: 4
 ### Under Review Publications: 5
-### Citations : 64 (Last Updated 26th August, 2021)
+### Citations : 70 (Last Updated 2nd October, 2021)
 ### Google Scholar: https://scholar.google.com/citations?user=dQlqrEYAAAAJ&hl=en
 
 
