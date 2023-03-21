@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-I'm currently studing at IIT Roorkee😃 
+I'm currently a PhD Student at University of Wisconsin-Madison
 
-Feel Free to ping me at: vbansal@me.iitr.ac.in
+Feel Free to ping me at: vbansa5@wisc.edu
 
 ### Google Scholar: https://scholar.google.com/citations?user=dQlqrEYAAAAJ&hl=en
 
